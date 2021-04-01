@@ -1,2 +1,0 @@
-# ESN-Awards
-ESN Awards
